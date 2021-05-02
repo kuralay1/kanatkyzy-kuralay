@@ -1,0 +1,1 @@
+# kanatkyzy-kuralay
